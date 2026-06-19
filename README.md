@@ -1,1 +1,1 @@
-# your
+When people get married, hardly anyone is thinking at that exact moment that one day they might have to get divorced. I don't want to sound pessimistic, but divorce has become a normal part of life these days, and there's nothing terrible about that. Even the existence of services like https://yourforms.com/divorce kind of proves my point. You can prepare all the documents yourself in a couple of minutes, everything is automated, which tells me there's definitely demand for it.
